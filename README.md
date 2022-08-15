@@ -4,4 +4,4 @@ En gözde mekanlarını keşfeder, resotran arayabilir,konser, gece hayatı,   m
 
 Yemek, menü, fiyat, mekan, adres, sipariş, iletişim, restoran, restaurant, ne kadar!,mekan bul,mekan ara,Restoran rehberi, yorumlar, fotoğraflar, rezervasyon, meyhaneler, alkollü, alkolsüz mekanlar,gece hayatı, mekan rehberi,mekan bul,eglence,gece hayati,kahvalti,otel,geiz,turizm,restoran ara,restoran bul,restoranlar,hızlı günlük restoranlar,steakhouse,barlar,Yemek pişirme,Yemek tuzu,Yemek yapmak,
 
-mekanagel.com
+www.mersinliakaryakit.com/
